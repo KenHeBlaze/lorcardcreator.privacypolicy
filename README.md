@@ -1,0 +1,1 @@
+# lorcardcreator.privacypolicy
